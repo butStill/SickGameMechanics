@@ -21,5 +21,3 @@ Sick mechanics I've found
 
 - https://www.gamesradar.com/coolest-game-mechanics-2013/
 
-
-- https://www.reddit.com/r/patientgamers/comments/6k20u6/what_games_really_nailed_smooth_animations_and/
